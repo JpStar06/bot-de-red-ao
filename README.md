@@ -1,2 +1,2 @@
 # bot de redacao
-meu primeiro script grande quefunviona direito kkk
+ok vamos la, esta cansado de ficar fazendo as redaçoes do governo?? aq esta sua soluçao
